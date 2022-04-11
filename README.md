@@ -1,2 +1,2 @@
 # Hixtdhd0556
-study 
+study
